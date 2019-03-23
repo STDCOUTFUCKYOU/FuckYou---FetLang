@@ -1,0 +1,2 @@
+# FuckYou---FetLang
+Fuck You
